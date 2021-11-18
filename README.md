@@ -1,0 +1,2 @@
+# https-www.reportsanddata.com-report-detail-advanced-process-control-apc-market
+ The global advanced process control (APC) market size was significantly large in 2020, and is expected to continue to register a rapidly inclining revenue CAGR between 2021 and 2028. Key factors responsible for driving market revenue growth are increasing implementation of these solutions in business models and high demand for automation solutions across various industries worldwide.
